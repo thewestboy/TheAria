@@ -56,7 +56,7 @@ I build modern, responsive, and user-friendly websites.
 
 ## 📬 Contact Me
 
-* 📧 Email: [your-email@example.com](mailto:your-email@example.com)
-* 🌐 Portfolio: your-portfolio.com
+* 📧 Email: [AryaClas83@Gmail.com](mailto:aryaclas83@gmail.com)
+* 🌐 Portfolio: Soon
 * 💼 Open for freelance work
 
